@@ -1,4 +1,4 @@
-
+Splashtop for macOS updated Utility: screen-sharing & file-transfer offers the most advanced Splashtop for macOS utility, with screen-sharing and file-transfer. Ideal for macOS
 
 
 
